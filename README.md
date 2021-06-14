@@ -88,6 +88,12 @@ archive.org 最早存档该网站于2021年2月9日(星期二)
 
 并且，lex女粉把番剧下架了的说法也存在争议。有网友表示，lex黑粉举报了无职转生并把下架的锅扣在lex粉丝头上[微博](https://m.weibo.cn/status/4602123817845655?)
 
+## 事件影响
 
+除了番剧下架，lex封号之外，
+
+有网友在推特告诉了无职转生作者lex相关言论，作者回复。[1](https://twitter.com/Magote_rihujin/status/1357226454644264962),[2](https://twitter.com/Magote_rihujin/status/1357261783443013638)
+
+在LexBurner被封号之后，原神拜年纪随即取消lex出演。
 
 

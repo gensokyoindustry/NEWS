@@ -76,11 +76,18 @@ archive.org 最早存档该网站于2021年2月9日(星期二)
 
 后来网站由 ohcnzz 运营。
 
-有网友认为，lex给无职转生做出负面评价，为女性发声了，所以哔哩哔哩封禁为女性发声的人是无视女权斗士的呼声。[来源](https://weibo.com/5092672711/K1haa9ksq?refer_flag=1001030103_) [来源2](https://weibo.com/6856529469/K1lnk0Nuj?refer_flag=1001030103_)
+有网友认为，lex给无职转生做出负面评价，为女性发声了，所以哔哩哔哩封禁为女性发声的人是无视女权斗士的呼声。[来源](https://weibo.com/5092672711/K1haa9ksq?refer_flag=1001030103_) [来源2](https://weibo.com/6856529469/K1lnk0Nuj?refer_flag=1001030103_) [来源3](https://www.douban.com/group/topic/210887597/)
+
+另有网友呼吁，解封LexBurner，目的是打造女权主义B站。[图](https://tieba.baidu.com/p/7225969885)
 
 有[微博](https://weibo.com/5218799240/K0lpNDxgA?refer_flag=1001030103_)称，lex被女权斗士保护。
 
-但是也有人认为lex不尊重女性[微博](http://weibointl.api.weibo.com/share/201220628.html?weibo_id=4600895771520787)
+上述信息可能是“LexBurner为二次元肖战”这种说法诞生的原因。而另一些事情则与这种说法相矛盾:
+
+有人认为lex不尊重女性[微博](http://weibointl.api.weibo.com/share/201220628.html?weibo_id=4600895771520787)
+
+并且，lex女粉把番剧下架了的说法也存在争议。有网友表示，lex黑粉举报了无职转生并把下架的锅扣在lex粉丝头上[微博](https://m.weibo.cn/status/4602123817845655?)
+
 
 
 

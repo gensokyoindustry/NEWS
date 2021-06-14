@@ -96,4 +96,10 @@ archive.org 最早存档该网站于2021年2月9日(星期二)
 
 在LexBurner被封号之后，原神拜年纪随即取消lex出演。
 
+## 策划
+
+在LexBurner被封号后，有多个图片曝光反二次元吧与v吧吧友参与策划了举报行动。[图](https://m.weibo.cn/status/4602123817845655?#&gid=1&pid=4)
+
+反二次元吧则有人在[庆祝](https://tieba.baidu.com/p/7222817444)
+
 

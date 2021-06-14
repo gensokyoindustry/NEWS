@@ -58,7 +58,7 @@ LexBurner在2.3发过一个微博解释道自己没有骂观众，并再次叙�
 ## 举报番剧给网信办
 
 2月7日，《无职转生》大陆版下架。
-番剧下架曾被一度以为是部分猥琐的内容引起了女性群体的反感。[文章](https://www.163.com/dy/article/G2NSECB40526OU3D.html)，女权斗士举报导致了下架。但是微博女权斗士 仙子飞升失败bot 发 [微博](http://weibointl.api.weibo.com/share/202284394.html) 辟谣,表示“举报番剧给网信办”的是无职转生粉丝。另有一段[录像](https://youtu.be/MaA9NC5ELsM) 显示，举报无职转生下架仅仅是一个节点，其最终目标还是冲lex。
+番剧下架曾被一度以为是部分猥琐的内容引起了女性群体的反感。[文章](https://www.163.com/dy/article/G2NSECB40526OU3D.html)，女权斗士举报导致了下架。但是微博女权斗士 仙子飞升失败bot 发 [微博](http://weibointl.api.weibo.com/share/202284394.html) 辟谣,表示“举报番剧给网信办”的是无职转生粉丝。另有一段[录像](https://youtu.be/MaA9NC5ELsM) 显示，举报无职转生下架仅仅是一个节点，黑粉其最终目标还是冲lex。
 
 ## lex女粉是女权斗士？
 

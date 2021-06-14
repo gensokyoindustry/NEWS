@@ -96,6 +96,9 @@ archive.org 最早存档该网站于2021年2月9日(星期二)
 
 在LexBurner被封号之后，原神拜年纪随即取消lex出演。
 
+消息传出后，有不少人惋惜“一部好番下架了”。
+ctlee61撰写博文 [227 之后是 210：他们依然没有改变](https://log.ctlee61.com/2021/02/227-210.html) ，后本文被 @xiaozhan-sb 转载，被 LetITFly News 转发.
+
 ## 策划
 
 在LexBurner被封号后，有多个图片曝光反二次元吧与v吧吧友参与策划了举报行动。[图](https://m.weibo.cn/status/4602123817845655?#&gid=1&pid=4)
